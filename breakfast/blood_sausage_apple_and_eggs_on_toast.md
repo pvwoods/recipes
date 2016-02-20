@@ -17,12 +17,12 @@
 
 ## Instructions
 
-1) Carmelize onions (speed up mallard reaction using baking soda if needed)
-2) dice apple, add to onions
-3) when apples start to soften, add garlic, ginger, and tomato
-4) Let the tomato cook through, add diced green onions and Oregano.
-5) cook for 30 more seconds, set aside
-6) Take a slice of bread from your boule and butter on both sides.  Toast in a hot pan
-7) cook 2 eggs, poached or sunny side up
+1. Carmelize onions (speed up mallard reaction using baking soda if needed)
+2. dice apple, add to onions
+3. when apples start to soften, add garlic, ginger, and tomato
+4. Let the tomato cook through, add diced green onions and Oregano.
+5. cook for 30 more seconds, set aside
+6. Take a slice of bread from your boule and butter on both sides.  Toast in a hot pan
+7. cook 2 eggs, poached or sunny side up
 
-8) Plate with bread on bottom, hash in the middle, and topped with 2 eggs.  Garnish with more green onion
+8. Plate with bread on bottom, hash in the middle, and topped with 2 eggs.  Garnish with more green onion
