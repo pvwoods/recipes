@@ -24,5 +24,4 @@
 5. cook for 30 more seconds, set aside
 6. Take a slice of bread from your boule and butter on both sides.  Toast in a hot pan
 7. cook 2 eggs, poached or sunny side up
-
 8. Plate with bread on bottom, hash in the middle, and topped with 2 eggs.  Garnish with more green onion
